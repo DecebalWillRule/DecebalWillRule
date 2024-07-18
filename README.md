@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @DecebalWillRule
+- 👀 I’m interested in history and coding
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on coding assignments
+- 📫 How to reach me Decebal.Tocmeala@outlook.com
+- 😄 Pronouns: born a male, and i will always be a male
